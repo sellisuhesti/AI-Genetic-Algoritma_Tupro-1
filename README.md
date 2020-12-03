@@ -1,0 +1,1 @@
+# AI-Genetic-Algoritma_Tupro-1
